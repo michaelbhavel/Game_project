@@ -18,15 +18,15 @@ Mobile gaming has become increasingly popular, and fighting games are among the 
 
 Here are some of the best fighting games for Android that you can explore:
 
-1. [Shadow Fight 2](#)
+1. [Shadow Fight 2](https://theshadowapk.com/shadow-fight-2-mod-apk/)
   - Description:Unleash your martial arts skills in this action-packed game with stunning graphics and immersive combat mechanics.
-3. [Shadow Fight 3](#)
+3. [Shadow Fight 3](https://theshadowapk.com/shadow-fight-3-mod-apk/)
    - Description: An action-packed game with stunning graphics and dynamic combat mechanics, allowing players to master various fighting styles.
-4. [Shadow of Death 2](#)
+4. [Shadow of Death 2](https://theshadowapk.com/shadow-of-death-2-mod-apk/)
    - Description: Engage in epic battles against dark forces and unleash devastating combos in this intense action RPG with stunning visuals.
-5. [Shadow of Death](#)
+5. [Shadow of Death](https://theshadowapk.com/shadow-of-death-mod-apk/)
    - Description: Embark on a dark and thrilling journey as you slash your way through hordes of enemies in this action-packed side-scrolling hack and slash game.
-6. [Shadow Knight Ninja](#)
+6. [Shadow Knight Ninja](https://theshadowapk.com/shadow-knight-ninja-mod-apk/)
    - Description: Become a stealthy warrior and master the art of assassination in this thrilling action game filled with deadly battles and epic ninja skills.
 
 Feel free to explore these games and share your experiences!
